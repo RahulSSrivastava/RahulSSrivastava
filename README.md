@@ -1,0 +1,4 @@
+- Hi, I’m @RahulSSrivastava
+- I’m interested in networking and recruiting top talent
+- I’m looking to collaborate on hiring strategies, diversity and inclusion
+- How to reach me at Rahul.S@meytier.com
